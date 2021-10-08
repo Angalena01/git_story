@@ -11,4 +11,8 @@ Simultaneously, across the world, everyone hears a voice in their head.
   This helped calm everyone down, as these words were words of power. Was Joe behind this is the question? Probably.
   Find out next time when we come back. Now a word from our sponsor, Raid Shadow Legends.
   
+  "UGHHH, you thought it was real money didn't you? But it's not, it's only the fake Joe Bucks!"
+  They are worth a penny each so use them wisely he said, at least that's what he was told by the private
+  investigators. "Don't worry citizens, they are here to help us because I could never do it alone."
+  
   
